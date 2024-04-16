@@ -1,1 +1,1 @@
-Take expectation of yourself on the first place.
+Put yourself on the first place.
