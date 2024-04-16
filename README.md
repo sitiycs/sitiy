@@ -1,1 +1,1 @@
-Put yourself on the first place.
+Think about yourself first. 
